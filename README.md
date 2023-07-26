@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-❇️ Using tech to tackle major social and ecological challenges
+❇️ Using tech to tackle social and ecological challenges
 
 🧍I create and develop user-centric designs that enhance the overall product experience
 
